@@ -31,3 +31,5 @@ Studied architecture in Brest State Tchnical University
 # English 
 intermediate level of english. Had a little practice during travels in Europe. Now have practice at work: need to communicate with foreign clients, 
 mostly by text messages rare by skype meetings. Also have ractice on english courses. 
+
+:)
